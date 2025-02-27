@@ -14,7 +14,7 @@ E, também, aqueles que estão prestes a sair do Japão para ir para lugares no 
 
 ### *Lenda de Hourai*
 
-Dizem que nem os empregados do Imperador Qin Shi Huang conseguiram encontrar o elixir da imortalidade, ainda...
+Dizem que nem os empregados do Imperador [Qin Shi Huang](https://en.wikipedia.org/wiki/Qin_Shi_Huang) conseguiram encontrar o elixir da imortalidade, ainda...
 O que a Princesa Kaguya está pensando?
 ...Será que ela realmente acha que podemos encontrar coisas como o Ramo de Joias de Hourai?
 
@@ -26,7 +26,7 @@ Ah, aquela garota... não parece um humano nem um youkai.
 
 ### *Adorável Monte de Flores de Cerejeira ~ Flor Japonesa*
 
-Será que ＊ ainda está dormindo debaixo daquela cerejeira?
+Será que *＊* ainda está dormindo debaixo daquela cerejeira?
 As pétalas das flores já foram tão carmesins, mas elas ficam mais pálidas, ano após ano.
 Pode ser que não haja mais nada sob o solo.
 
@@ -73,7 +73,7 @@ A princípio, é estranho que exista uma mansão ao estilo ocidental no meio de 
 Como eu sei que ela tinha uma filha?
 Bem, já que a menina se parece com ela quando era jovem...
 
-### *U.N. Owen era ela?*
+### *U.N. Owen era Ela?*
 
 Falta-lhe imaginação. Você provavelmente cairia na armadilha dela. Uma criminosa com tanta imaginação quanto U.N. Owen poderia facilmente colocar uma corda em seu pescoço.
 
@@ -84,7 +84,7 @@ Me prometeram que não aconteceria nada amanhã.
 Ninguém vem aqui. Nem os humanos, nem mesmo os deuses.
 Youkais? Ah, eles vêm todos os dias.
 
-### *A Estranha Vida Diária da Sacerdotisa Voadora*
+### *A Curiosa Vida Cotidiana da Sacerdotisa Voadora*
 
 Recentemente, mais e mais pessoas estão ignorando coisas como "É magia" ou "É um youkai". Que triste situação.
 
