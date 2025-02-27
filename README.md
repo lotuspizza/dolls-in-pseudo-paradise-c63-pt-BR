@@ -34,7 +34,7 @@ Pode ser que não haja mais nada sob o solo.
 
 A fumaça do ópio paira sobre a cidade em uma nuvem, fluindo em cada canto e fenda. Eu estou no povoado. As pessoas dançam uma valsa com as roupas das cores mais brilhantes. A magia não vai me alcançar aqui.
 
-### *Estranho Discurso Oriental*
+### *Conto de Fantasia Oriental*
 
 "Youkais? É um sentido bastante incomum".
 Mas, eu sei. Que os youkais viveriam em paz se os humanos os deixassem.
