@@ -1,5 +1,5 @@
 # Dolls in Pseudo Paradise / Bonecas no Pseudo Paraíso (versão Comiket 63) (Tradução)
-<img src="cover.png" alt="capa de Dolls in Pseudo Paradise" width="500"/>
+<img src="cover.png" alt="capa de Dolls in Pseudo Paradise (versão Comiket 63)" width="500"/>
 
 ## Saudações do Compositor
 
