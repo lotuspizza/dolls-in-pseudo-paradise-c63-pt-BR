@@ -31,7 +31,7 @@ Será que *＊* ainda está dormindo debaixo daquela cerejeira?
 As pétalas das flores já foram tão carmesins, mas elas ficam mais pálidas, ano após ano.
 Pode ser que não haja mais nada sob o solo.
 
-### *Shanghai Alice de Meiji 17*
+### *Xangai Alice de Meiji 17*
 
 A fumaça do ópio paira sobre a cidade em uma nuvem, fluindo em cada canto e fenda. Eu estou no povoado. As pessoas dançam uma valsa com as roupas das cores mais brilhantes. A magia não vai me alcançar aqui.
 
